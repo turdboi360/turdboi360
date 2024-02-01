@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @turdboi360
 - 👀 I’m interested in tech
-- 🌱 I’m currently learning codeing
+- 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me is to hit me with an email.
 - 😄 Pronouns: he, him
